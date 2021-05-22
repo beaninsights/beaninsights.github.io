@@ -1,0 +1,1 @@
+# beaninsights.github.io
